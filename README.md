@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @hooaczx
-- 🌀 I do about scripts, Roblox
+- 👋 Hi, I’m @hooaczx or @1hooaczx1
